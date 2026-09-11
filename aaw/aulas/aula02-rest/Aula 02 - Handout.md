@@ -16,7 +16,7 @@ Ao final, preencham juntos a TABELA-SÍNTESE dos verbos na última página.
 
 *⏱️ Tempo: 30 minutos  |  👥 Formato: em duplas  |  Dica: o card 6 esconde uma pegadinha de quem é a culpa.*
 
-> **Nomes:** ____________________   **Turma:** ____________________   **Data:** ___ / ___ / ______
+> **Nomes:** Giovanna Santos Madeira  **Turma:** ADS **Data:** 10 / 09 / 2026
 
 ## REQUISIÇÃO 01 — A prateleira inteira
 
